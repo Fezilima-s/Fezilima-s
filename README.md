@@ -12,7 +12,7 @@ Atualmente atuo como Funcionária Pública, mas busco migrar de área.
 ## Formação
 👩🏼‍🎓 Técnologa em Segurança da Informação
 
-👩🏼‍💻 Cursando Bacharelado em Ciências de Dados
+👩🏼‍💻 Cursando Bacharelado em Ciência de Dados
 
 
 ## Habilidades
